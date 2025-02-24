@@ -48,7 +48,7 @@ Hosting is BUILT IN!
 
 All 53 beta testers have made money within 12 hours of testing out this never-before-seen system, called “Elixir AI”...
 
-==> [**Watch how ELIXIR AI 2025 App works here!**]((https://warriorplus.com/o2/a/vfr2hpz/0)
+==> [**Watch how ELIXIR AI 2025 App works here!**](https://warriorplus.com/o2/a/vfr2hpz/0)
 
 - [+] all done for you, works 24/7
 - [+] brand-new content created automatically
